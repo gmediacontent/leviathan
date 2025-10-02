@@ -1,1 +1,2 @@
-# leviathan
+# Leviathan
+La Terre est submergée et des monstres marins règnent sur la planète. Bota et sa famille réussiront-ils à trouver un lieu sûr dans cet enfer aquatique ? Et qui est donc la mystérieuse Kana ?
